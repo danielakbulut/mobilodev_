@@ -1,3 +1,5 @@
+Danışman: @keyvanarasteh
+
 Öğrenci: Daniel Akbulut   
 Öğrenci No: 221216080
 
