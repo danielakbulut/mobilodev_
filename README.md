@@ -3,11 +3,6 @@ Danışman: @keyvanarasteh
 Öğrenci: Daniel Akbulut   
 Öğrenci No: 221216080
 
-Öğrenci: Beyza Kaya   
-Öğrenci No: 221216092
-
-Öğrenci: Halime Taşkın   
-Öğrenci No: 222016740
 
 İnstagram
 
